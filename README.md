@@ -1,3 +1,3 @@
 # Notes from Elevate sessions
 
-Author: [@sivarajTweets](www.twitter.com/sivarajTweets)
+Author: [@sivarajTweets](https://www.twitter.com/sivarajTweets)
